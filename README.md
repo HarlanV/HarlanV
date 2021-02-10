@@ -4,6 +4,6 @@
 - 🔭 Last year i've learned a lot of cool new things...
 -  ... I hope to learn even more this year;
 - 🕵 Self-taught
-- 🧙 It's a secret, but i love magic books and movies
+- 🧙 Favorite quote: "Dobby is a free elf !"
 - 🔷 Fun fact: I can solve a Rubiks Cube in 3 min
 - 🇧🇷 Brazilian
